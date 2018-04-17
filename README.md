@@ -1,1 +1,1 @@
-# Projekt-aplikacja-Tr-jb-j
+projekt trojboj aplikacja
